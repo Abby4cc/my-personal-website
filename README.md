@@ -63,5 +63,5 @@ For any inquiries, feel free to reach out:
 - **Email**: abigailchelah@example.com
 
 ---
-Thank you for visiting my Personal Website! 🚀
+Thank you for visiting my Personal Website
 
